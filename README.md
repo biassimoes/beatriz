@@ -1,2 +1,1 @@
-# beatriz
-27/10
+# Beatriz Simôes da Silva, tenho 15 anos, estudo no Colégio Estadual Polivalente Carlos Domingos Silva 
